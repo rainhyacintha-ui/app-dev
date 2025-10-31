@@ -34,5 +34,18 @@
 
 ### Why I Love Them
 > All of these shows and movies remind me that love, friendship, and memories — even when bittersweet — make life worth living. 
+That is so funny! :joy:  
+I need to highlight these ==very important feelings== of nostalgia and love.
 
+---
+
+### Fun Extras
+- [x] Watch *Our Beloved Summer* again  
+- [x] Rewatch *La La Land*  
+- [ ] Start *Stranger Things* Season 5  
+- [ ] Recommend *Girl from Nowhere* to a friend  
+- [ ] Binge *Modern Family* this weekend 🍿  
+- [ ] Rewatch *500 Days of Summer* for the feels 😢  
+
+---
   [^1]: My comfort shows keep me inspired and emotionally recharged.  
